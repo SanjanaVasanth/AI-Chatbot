@@ -1,0 +1,1 @@
+https://careerpath.mgx.world/
